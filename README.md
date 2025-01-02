@@ -1,4 +1,8 @@
 <p align="center">
+; "너를 떠나온 오늘 밤
+나는 편안히 잠들거야." ;
+</p>
+<p align="center">
 <img src="https://i.pinimg.com/736x/55/3c/3f/553c3fdb703d42ed64a66457897f9aeb.jpg" alt="" width="300" height="300">
 </p>
 <p align="center">
