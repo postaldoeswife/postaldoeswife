@@ -11,7 +11,7 @@
 i'm open for chat if you're into any of the things i like! i prefer insta but my discord is postaldoeswife if that's your preference :3
 
 
-i love postal, l4d2, obsecure vocaloid, postal doe, nastyona, tf2, and **postal doe!!**
+i love postal, l4d2, obsecure vocaloid, postal doe, nastyona, a bit of r6s, postal doe, tf2, and **postal doe!!**
 
 
 find my lesbian fanart on my instagram: [*@aliisvomit*](https://www.instagram.com/aliisvomit/) and [*@postaldoeswife*](https://www.instagram.com/postaldoeswife/) ♡
