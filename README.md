@@ -17,7 +17,7 @@ i'm open for chat if you're into any of the things i like! i prefer insta but my
 
 i love postal, l4d2, obsecure vocaloid, postal doe, nastyona, a bit of r6s, doom, postal doe, tf2, and **postal doe!!**
 
-please note that i have bad social anxiety when it comes to interacting with new ppl but i'm more than open to convo!! ^^ pls be nice <img src="https://64.media.tumblr.com/31daa32599bb8da3705d1570ea306c97/979aeaa541231801-2a/s75x75_c1/77796e02f78db1626350e4cf5aebf2b8a479751b.gifv">
+pls note that i have bad social anxiety when it comes to interacting with new ppl but i'm more than open to convo!! ^^ pls be nice <img src="https://64.media.tumblr.com/31daa32599bb8da3705d1570ea306c97/979aeaa541231801-2a/s75x75_c1/77796e02f78db1626350e4cf5aebf2b8a479751b.gifv">
 
 
 find my lesbian fanart on my instagram: [*@aliisvomit*](https://www.instagram.com/aliisvomit/) and [*@postaldoeswife*](https://www.instagram.com/postaldoeswife/) <img src="https://64.media.tumblr.com/2d1572a915683293339f79841c5284f2/979aeaa541231801-a6/s75x75_c1/222759d7de730cf8c1456297d9d9f8b4f7eec5ee.gifv">♡
