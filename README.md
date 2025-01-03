@@ -15,7 +15,8 @@
 i'm open for chat if you're into any of the things i like! i prefer insta but my discord is postaldoeswife if that's your preference :3
 
 
-i love postal, l4d2, obsecure vocaloid, postal doe, nastyona, a bit of r6s, doom, postal doe, tf2, and **postal doe!!**
+i love postal, l4d2, obsecure vocaloid, postal doe, nastyona, a bit of r6s, doom, postal doe, tf2, and **postal doe!!** <img src="https://img1.picmix.com/output/pic/normal/7/0/7/2/12242707_a531e.gif" alt="" width="30" height="30">
+
 
 pls note i have bad social anxiety when it comes to interacting with new ppl but i'm more than open to convo!! ^^ pls be nice <img src="https://64.media.tumblr.com/31daa32599bb8da3705d1570ea306c97/979aeaa541231801-2a/s75x75_c1/77796e02f78db1626350e4cf5aebf2b8a479751b.gifv">
 
