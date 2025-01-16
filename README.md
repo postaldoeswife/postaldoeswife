@@ -22,6 +22,8 @@ pls note i have bad social anxiety when it comes to interacting with new ppl but
 
 
 find my lesbian fanart on my instagram: [*@aliisvomit*](https://www.instagram.com/aliisvomit/) and [*@postaldoeswife*](https://www.instagram.com/postaldoeswife/) <img src="https://64.media.tumblr.com/2d1572a915683293339f79841c5284f2/979aeaa541231801-a6/s75x75_c1/222759d7de730cf8c1456297d9d9f8b4f7eec5ee.gifv">♡
+
+strawpage for more info and leave a note/drawing if you'd like! ♡: https://postaldoeswife.straw.page/ 
 <p align="center">
 ⋆. ୨୧˚⋆ 
 </p>
