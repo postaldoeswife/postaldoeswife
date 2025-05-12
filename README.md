@@ -3,7 +3,7 @@
 나는 편안히 잠들거야." ;
 </p>
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/845056716512559135/1359389190034559217/Untitled1189_20250408212810.png?ex=67f74d57&is=67f5fbd7&hm=46ca579ba07e3532203167f4b37512025917d46f777fdf9a4789bff18b208b45&" alt="" width="300" height="300">
+<img src="https://photos.fife.usercontent.google.com/pw/AP1GczPkcf4AOgiYfcmOOHjzcj90Ivd1gzDeWWYAmigPocLQvpKl5YKC83Q=w752-h731-s-no-gm?authuser=1" alt="" width="300" height="300">
 </p>
 <p align="center">
 ──★ !! 
