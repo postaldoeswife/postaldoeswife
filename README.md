@@ -3,7 +3,7 @@
 나는 편안히 잠들거야." ;
 </p>
 <p align="center">
-<img src="https://photos.fife.usercontent.google.com/pw/AP1GczPkcf4AOgiYfcmOOHjzcj90Ivd1gzDeWWYAmigPocLQvpKl5YKC83Q=w752-h731-s-no-gm?authuser=1" alt="" width="300" height="300">
+<img src="https://github.com/postaldoeswife/images/blob/main/Untitled1189_20250408212810.png" alt="" width="300" height="300">
 </p>
 <p align="center">
 ──★ !! 
