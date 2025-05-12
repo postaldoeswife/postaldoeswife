@@ -28,7 +28,7 @@ strawpage for more info and leave a note/drawing if you'd like! ♡: https://pos
 ⋆. ୨୧˚⋆ 
 </p>
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/845056716512559135/1359389189396762756/Untitled1190_20250408213127.png?ex=67f74d56&is=67f5fbd6&hm=3d54c9d09ede15056e074cdfb65518f70a13aa99d65dc583fc1eef7ff9ecd1d1&" alt="" width="300" height="300">
+<img src="https://github.com/postaldoeswife/images/blob/main/Untitled1190_20250408213127.png" alt="" width="300" height="300">
 </p>
 <p align="center">
 <img src="https://64.media.tumblr.com/2d6a1b67b03f283b7a251ab3a304148f/6a924f54b107777b-c2/s100x200/c2f222e01a24900d9dba2765de1292146e47b51c.gifv"> <img src="https://64.media.tumblr.com/b780e4866a735502649936df124ada63/9fbc409bff7cd80c-fb/s250x250_c1/5b6e89c1248e0fee7cb63a5196c770fcc4fea4b8.gifv" alt="" width="125" height="65"> <img src="https://64.media.tumblr.com/d76c6451048caf90da5e0b239db9de91/6a924f54b107777b-95/s100x200/92cf1b42a6a3859f72a29c3b58bc20430338205b.gifv">
